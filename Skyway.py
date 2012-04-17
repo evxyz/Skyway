@@ -1,12 +1,12 @@
         SKYWAY
 
-										-I-
+							-I-
 
  
 
 The girl
 
-(who would become known to herself as “the missing girl”)
+(who would become known to herself as "the missing girl")
 
 sleeps,
 
@@ -21,11 +21,11 @@ she is in the bedroom
 of a composite house pulled together from bits of others they've already lived in; 
 the girl grabs the angel-figurine from the nativity-set on the bedroom bureau just before a disembodied arm sweeps the entire set into a garbage bag.
 
-“We don't have time, we've got to go. Now."
+"We don't have time, we've got to go. Now."
 
 says a disembodied mother like voice.
 
-										* * * * * * *
+						* * * * * * *
 
 The blue Honda hits the railing
 
@@ -42,9 +42,7 @@ The blue Honda launches out of the southbound lane of the I-5 Skyway
 
         into open space above treetops.
 
- 
-
-												-II-
+ 							-II-
 
  
 
@@ -52,7 +50,7 @@ Hours later, against a blue dawn sky, right at the gap in the railing where the 
 
  
 
-												-III-
+							-III-
 
  
 
@@ -71,13 +69,14 @@ Air,
 from an open door.
 Air
 from a missing door. 
-“Mom?”
+"Mom?"
 
-											-IV-
+							-IV-
 
-“Thrown” seven yards in a “south easterly direction” from the “crash site” State Trooper Marlowe's report will say in triplicate.
 
-											-V-
+"Thrown" seven yards in a "south easterly direction" from the "crash site" State Trooper Marlowe's report will say in triplicate.
+
+							-V-
 
 But the girl
 
@@ -89,13 +88,13 @@ or amusement-park rides.
 
  
 
-She’s touching at the mark, a dent, a divit, 
+She's touching at the mark, a dent, a divit, 
 (her central defect)
 on her forehead;
 
-It’s like she’s crossing herself
-but she isn’t crossing herself,
-she’s flailing
+It's like she's crossing herself
+but she isn't crossing herself,
+she's flailing
 
 screaming
 or dreams screaming,
@@ -109,13 +108,13 @@ but hearts can't scream,
 as it impacts the night
 						-earth.
 
-											-VI-
+							-VI-
 
 3am 
 
 the median 
 
-under the Route 5 Skyway in the Crown-Vic’ patrol-car Trooper Marlowe,
+under the Route 5 Skyway in the Crown-Vic' patrol-car Trooper Marlowe,
 
 his face illuminated, blue by dashboard light.
 
@@ -164,7 +163,7 @@ On the North side of 390,
 
 a pine tree: 
 sheared in two 
-				by the “probable” remains 
+				by the "probable" remains 
 of a vehicle 
 			 pulled apart 
 			 into toffee-like strands.
@@ -176,9 +175,9 @@ unable to make his limbs move faster striding up the embankment to the disembowe
 In the stillness: 
 				the ticking steam of antifreeze on scalding exhaust.
 
- What can’t be in Trooper Marlowe’s report 
+ What can't be in Trooper Marlowe's report 
 (but should be): 
-	the time taken for him to find “the mother,” 
+	the time taken for him to find "the mother," 
 	in tall grass.
 		Convulsing, 
 		limbs expanding, 
@@ -192,13 +191,13 @@ he tilts his head trying to imagine the sequence of events that puts her here.
   
 Over his shoulder, 
 a girl, 
-(or the “sense” of a girl) 
+(or the "sense" of a girl) 
 					floating 
 							above the accident 
 looking down 
 			at him, 
 			but when he 
-			looks up he can’t see anything
+			looks up he can't see anything
 just a night full of winter stars.
 
 
@@ -226,7 +225,7 @@ The small hand closes tight around his fingers.
 
  
 
-									-VII-
+							-VII-
 
 									
 vapor 					 									conscious  	
@@ -245,19 +244,19 @@ space
 
                                                                                    space
 
-						  place       
-												&         	
-																	no,place
+			  place       
+						&         	
+									no,place
 
-                                    time              no,time
+                                    time          				    no,time
 
 where  
-		no-------------------------------------------------------------------------------where
+	no-------------------------------------------------------------------------------where
 
                     
                                              
-                                            -VIII-
-
+        	                                    -VIII-
+	
                                             
 the girl on the edge of America: 
 held in angel arms, warm as the wind in her face; she is moving toward the light surrounded by darkness;
