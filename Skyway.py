@@ -261,22 +261,51 @@ where
 the girl on the edge of America: 
 held in angel arms, warm as the wind in her face; she is moving toward the light surrounded by darkness;
 
- 
-
-the girl on the edge of America: 
-sees herself little and dancing, on the pier at  Cayuga Lake, only to fall in the water, laughing;
-
- 
-
-the girl on the edge of America: 
-sees a blank faced man who is either her father or a man who will be;
-
- 
 
 the girl on the edge of America: 
 is about to slip out of America, float-away, forever or maybe 
 																come back.
 
- 
+						--IX-- 
 
- 
+“the girl” f
+                   a
+                       l 
+                         l
+                          s awake, 
+	                          awake to tubes: 
+		                          nose tubes, 
+			                          mouth tubes, 
+				                          stuck in the arm tubes.
+
+Tubes like so many roads leading into and going out of her. 
+She is a city of tubes, and beeping sounds, whirring sounds, mechanical breathing sounds. 
+
+an elephant of weight on her legs and arms.
+
+A word tries to rise in her throat but it's caught in the tube. 
+She jerks her middle and 
+	plastic pipes that running into her, tap against their metal parts, a dull tap like a clocks ticking. 
+
+An itch forms on her forehead  
+but she can't reach to wipe, 
+her head bandaged, taped, 
+taped together, 
+if she moves to hard her whole head will come apart.
+
+Then night or dark 
+washes over it's banks and sweeps her back down into black.
+
+(II) 
+
+White day voices, 
+the blur of talking 
+
+“the girl,” 
+	which must be her. Sometimes she's "the girl in seven" but mostly it is just "the girl." 
+
+an occasional sentence becomes discernible / meaningful
+"someone will claim her?"
+
+But no one comes, 
+	only nurses.  
