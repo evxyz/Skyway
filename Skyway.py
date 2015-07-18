@@ -4,13 +4,14 @@
 
  
 
-The girl
 
-(who would become known to herself as "the missing girl")
+The girl on the edge of America: 
 
-sleeps,
+	(who would become known to herself as "the missing girl")
 
-    head slumped against the passenger window of the blue Honda
+	sleeps,
+
+    	head slumped against the passenger window of the blue Honda
 
            rushing along the I-5 Skyway.
 
@@ -168,7 +169,7 @@ of a vehicle
 			 pulled apart 
 			 into toffee-like strands.
 
-Seconds balloons to minutes, he moves as if underwater
+Seconds balloon to minutes, he moves as if underwater
 
 unable to make his limbs move faster striding up the embankment to the disemboweled wreckage.
 
@@ -228,45 +229,19 @@ The small hand closes tight around his fingers.
 							-VII-
 
 									
-vapor 					 									conscious  	
-outside         				the             			outside 
-crushing     		weight     			of            no,weight
-light           of               infinite                            dark
-        bird
-                                                                    wing,free
-the 			float     					space
 
-in
-
-space  
-
-                                      within  
-
-                                                                                   space
-
-			  place       
-						&         	
-									no,place
-
-                                    time          				    no,time
-
-where  
-	no-------------------------------------------------------------------------------where
+a vapor 
+outside the outside 
+the liberating weight of no weight 
+a flicker of light above infinite dark
+a bird, wingless
+but afloat      					  
+no-------------------------------------------------------------------------------where
 
                     
                                              
         	                                    -VIII-
 	
-                                            
-the girl on the edge of America: 
-held in angel arms, warm as the wind in her face; she is moving toward the light surrounded by darkness;
-
-
-the girl on the edge of America: 
-is about to slip out of America, float-away, forever or maybe 
-																come back.
-
-						--IX-- 
 
 “the girl” f
                    a
@@ -285,7 +260,7 @@ an elephant of weight on her legs and arms.
 
 A word tries to rise in her throat but it's caught in the tube. 
 She jerks her middle and 
-	plastic pipes that running into her, tap against their metal parts, a dull tap like a clocks ticking. 
+	plastic pipes running into her, tap against their metal parts, a dull tap like a clocks ticking. 
 
 An itch forms on her forehead  
 but she can't reach to wipe, 
@@ -296,13 +271,12 @@ if she moves to hard her whole head will come apart.
 Then night or dark 
 washes over it's banks and sweeps her back down into black.
 
-(II) 
-
 White day voices, 
 the blur of talking 
 
 “the girl,” 
-	which must be her. Sometimes she's "the girl in seven" but mostly it is just "the girl." 
+	which must be her. 
+Sometimes she's "the girl in seven" but mostly it is just "the girl." 
 
 an occasional sentence becomes discernible / meaningful
 "someone will claim her?"
