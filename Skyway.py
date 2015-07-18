@@ -115,7 +115,7 @@ as it impacts the night
 
 the median 
 
-under the Route 5 Skyway in the Crown-Vic' patrol-car Trooper Marlowe,
+under the Route 5 Skyway in the Ford Crown-Vic', trooper Marlowe,
 
 his face illuminated, blue by dashboard light.
 
@@ -268,11 +268,11 @@ her head bandaged, taped,
 taped together, 
 if she moves to hard her whole head will come apart.
 
-Then night or dark 
+Then sleep or night 
 washes over it's banks and sweeps her back down into black.
 
 White day voices, 
-the blur of talking 
+the blur of hushed talking 
 
 “the girl,” 
 	which must be her. 
