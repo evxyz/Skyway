@@ -1,0 +1,29 @@
+-- 52k --  
+-- 13k per Act --
+
+MainChar -- Katheryne Dhare 
+	BFlaw <--> BStrength
+		fstChallenge -> BFlaw
+		fstStep -> goWrong 
+		-- or ---> goRight 
+
+	SFlaw <--> Strong1
+
+BProb -- BigQuest  
+	A1 OpenOn -- ???
+		KickOffEvent --	???
+		EmotionalValue -- ???
+		Action -- ???
+		Result -- ???
+	
+		Event --  
+MainAction -- Solving the Mystery -- SavingLives
+FailureEquals -- ???
+
+Emotion + Action = Story 
+
+
+
+
+
+ 
